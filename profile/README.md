@@ -1,4 +1,4 @@
-| ![image](https://github.com/user-attachments/assets/66c38dab-82fd-4b95-8d85-3ff014dc8bcc)| [![image](https://github.com/user-attachments/assets/cb676a5d-2a52-479e-8613-b0aa8bc2a9f(https://apkfyp.com/kunoichi-trainer.html) |
+| ![image](https://github.com/user-attachments/assets/66c38dab-82fd-4b95-8d85-3ff014dc8bcc)| [![image](https://github.com/user-attachments/assets/ddb6ae3f-0c42-42a6-adfa-b4545d49befb)](https://apkfyp.com/kunoichi-trainer.html) |
 |:-------------------------------------------------:|-----------------------|
 | **Platform**: Android 5.0+                       | **Version**: 2025      |
 | **Size**: 280 MB                                  | ⭐⭐⭐⭐⭐ (5/5) |
