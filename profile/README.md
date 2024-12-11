@@ -1,11 +1,11 @@
-| ![image](https://github.com/user-attachments/assets/66c38dab-82fd-4b95-8d85-3ff014dc8bcc)| [![image](https://github.com/user-attachments/assets/ddb6ae3f-0c42-42a6-adfa-b4545d49befb)](https://apkfyp.com/kunoichi-trainer.html) |
+| ![image](https://github.com/user-attachments/assets/5dc21273-bfeb-4534-8278-208100a6f525)| [![image](https://github.com/user-attachments/assets/5408db6e-ef63-4484-9cda-943839c58ee2)](https://apkfyp.com/kunoichi-sekiren.html) |
 |:-------------------------------------------------:|-----------------------|
 | **Platform**: Android 5.0+                       | **Version**: 2025      |
-| **Size**: 280 MB                                  | ⭐⭐⭐⭐⭐ (5/5) |
+| **Size**: 420 MB                                  | ⭐⭐⭐⭐⭐ (5/5) |
 
-## DOWNLOAD NOW➡️📱 [KUNOICHI SEKIREN APK UNLIMITED FULL GAME](https://apkfyp.com/kunoichi-trainer.html)
+## DOWNLOAD NOW➡️📱 [KUNOICHI SEKIREN APK UNLIMITED FULL GAME](https://apkfyp.com/kunoichi-sekiren.html)
 
-![image](https://github.com/user-attachments/assets/be1012b8-9225-4db5-a5f4-d976632adf4b)
+![image](https://github.com/user-attachments/assets/e128ff9f-44a9-4e4a-b55a-96905a0c304b)
 
 ## Introduction to Kunoichi Sekiren APK: A Thrilling 2D Action Experience
 
